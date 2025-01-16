@@ -18,7 +18,7 @@ Chat Recap  - Online Free NoSignup - Your AI Chat Analysis https://www.chatrecap
 
 ## Chat Recap AI - Your AI Chat Analysis 💌
 
-[Chat Recap AI]([https://chatrecapai.org](https://www.chatrecap.org/)) is your intelligent conversation analyzer that helps you understand the dynamics of your relationships through ai chat analysis. Our AI-powered platform examines message patterns, response times, and emotional content to give you deep insights into your digital interactions, helping you build better connections and identify potential relationship patterns.
+[Chat Recap AI]([https://www.chatrecap.org/]) is your intelligent conversation analyzer that helps you understand the dynamics of your relationships through ai chat analysis. Our AI-powered platform examines message patterns, response times, and emotional content to give you deep insights into your digital interactions, helping you build better connections and identify potential relationship patterns.
 
 # Chat Recap AI: Your Ultimate AI Chat Analysis Companion
 
